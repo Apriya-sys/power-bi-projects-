@@ -6,3 +6,5 @@ https://www.youtube.com/watch?v=aXNhtcQ4nEU
 
 
 https://powerbidocs.com/power-bi-tutorials-list/
+
+
